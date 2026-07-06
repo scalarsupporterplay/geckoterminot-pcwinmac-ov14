@@ -1,4 +1,4 @@
-# 
+# مفتوح المصدر geckoterminal sniper bot أدوات لـ Mac OS | خفيف geckoterminal sniper bot أدوات لـ PC Windows. مع التداول بالرافعة المالية و تتبع الأسعار — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
